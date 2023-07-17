@@ -17,5 +17,5 @@ Ta là Thông Thiên giáo chủ, chính là Đại Đạo Thánh Nhân, trấn 
 
 Link truyện:
 
-[Bắt Đầu Đoạt Xá Thông Thiên Giáo Chủ](https://tutruyenchu.com/truyen/Hong-Hoang-Bat-dau-doat-Xa-Thong-Thien-Giao-Chu)
+[Bắt Đầu Đoạt Xá Thông Thiên Giáo Chủ](https://truyenchuhub.org/truyen/Hong-Hoang-Bat-dau-doat-Xa-Thong-Thien-Giao-Chu)
 </div>
